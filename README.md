@@ -6,3 +6,4 @@ Hi, I’m a Blockchain Protocol and AI engineer
 ⚡ Beyond coding: I enjoy football, gaming, and exploring new ideas through reading, philosophy, politics, and music.<br><br>
 <br>
 Currently building a new kind of market for pricing social opinions and stances
+Also researching the human brain and consciousness alongside 
